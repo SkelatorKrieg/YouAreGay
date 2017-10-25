@@ -1,2 +1,2 @@
-# YouAreGay
+# YouAreOkay
 Das gay, m8
